@@ -9,4 +9,6 @@
 **how to keep yourself in a growth mindset:
 1.Acknowledge and embrace imperfections 2.View challenges as opportunities 3.Try different learning tactics**
 ![](https://1ab7t83ossu73um951g2vaw3-wpengine.netdna-ssl.com/wp-content/uploads/2016/09/51bf4-growth2bmindset-001.jpg?w=300)
+Razan Alnanaah link:
+[My Portfolio!](https://www.atlassian.com/blog/inside-atlassian/growth-mindset)
 
